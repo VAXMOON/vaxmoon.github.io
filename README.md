@@ -1,2 +1,2 @@
 # vaxmoon.github.io
-website
+New website coming soon :D
